@@ -6,14 +6,12 @@ SamanthaSammet@yahoo.com |  1265 Eden Avenue | (319-321-2823)
 Summary/Cover letter
 --------------------
 
-I've been delivering fast great service with a smile for X months in my career
-now and am looking for a fresh respectful 
+I've been delivering fast 5-star service with a smile for X months in my career
+now and am looking for a fresh respectful.
 
 
 Experience
 ----------
-
-// a little vertical alignment allows you to read faster because of the patterns in the text.
 * Waitress, Hay Market | 9+ months, December 2013 – Present   | San Jose, CA
 * Bartender, Bo James  | 17 months, June 2011 – November 2012 | Iowa City, IA
   
@@ -31,8 +29,8 @@ Panera Bread	 | Sycamore Street Iowa City, Iowa 52245
 Cashier February 2009 –  March 2010
 Energetic customer service professional with six years client experience, responsible and reliable cashier in retail and customer service.
 
-Great mid-western work ethic
-----------------------------
+Excellent mid-western work ethic
+--------------------------------
  • Solid team player with dependable, positive attitude.
  • Motivated by hands on, work that produces an effective positive outcome to better both the clients’ interaction with the face of a business along with accomplishing a productive transaction.
  • Well-developed personal skills, effective and courteous communicator
@@ -43,7 +41,6 @@ Great mid-western work ethic
  • Tenacious work attitude,
  • Quick learner and hardworking
  • Well organized, able to prioritize tasks and finish accordingly
-
 
 
 Education
