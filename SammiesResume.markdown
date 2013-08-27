@@ -16,7 +16,12 @@ Experience
 // a little vertical alignment allows you to read faster because of the patterns in the text.
 * Waitress, Hay Market | 9+ months, December 2013 – Present   | San Jose, CA
 * Bartender, Bo James  | 17 months, June 2011 – November 2012 | Iowa City, IA
-   -Was also responsible for handling any customer wants and needs, perform cashier duties as well as serving. Opening and closing duties, cleaning and daily maintance. Managing wait staff, scheduling and task direction. 
+  
+  Beyond standard bartending, I was also responsible for:
+    - Managing wait staff, scheduling and task direction
+    - Handling customer complaints and special requests in a friendly professional manner
+    - Opening and closing
+    - Cleaning and daily maintance
 
 Fareway	 | Commerce Drive Iowa City, Iowa 52245 	
 Cashier April 2010 – November 2011
