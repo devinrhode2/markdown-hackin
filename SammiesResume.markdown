@@ -31,16 +31,16 @@ Energetic customer service professional with six years client experience, respon
 
 Excellent mid-western work ethic
 --------------------------------
- • Solid team player with dependable, positive attitude.
- • Motivated by hands on, work that produces an effective positive outcome to better both the clients’ interaction with the face of a business along with accomplishing a productive transaction.
- • Well-developed personal skills, effective and courteous communicator
- • Resourceful, proactive and have initiative
- • Flexible and adapt quickly to new working environments
- • Able to work individually or guide a group of coworkers
- • Creative in conflict resolution
- • Tenacious work attitude,
- • Quick learner and hardworking
- • Well organized, able to prioritize tasks and finish accordingly
+ * Solid team player with dependable, positive attitude.
+ * Motivated by hands on, work that produces an effective positive outcome to better both the clients’ interaction with the face of a business along with accomplishing a productive transaction.
+ * Well-developed personal skills, effective and courteous communicator
+ * Resourceful, proactive and have initiative
+ * Flexible and adapt quickly to new working environments
+ * Able to work individually or guide a group of coworkers
+ * Creative in conflict resolution
+ * Tenacious work attitude,
+ * Quick learner and hardworking
+ * Well organized, able to prioritize tasks and finish accordingly
 
 
 Education
