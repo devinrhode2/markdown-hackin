@@ -1,37 +1,55 @@
-# Samantha Sammet
+Samantha Sammet
+===============
 
 SamanthaSammet@yahoo.com |  1265 Eden Avenue | (319-321-2823)
-  
-Education
-San Jose City College	
-       Present 
-Iowa City High School	
-Diploma      Spanish  
-Experience
-Hay Market | 1185 Lincoln Avenue San Jose, California 95125
-Waitress December 2013  – Present
 
-Bo James	 | 118 E. Washington Street Iowa City, Iowa 52245
-Bartender June 2011 – November 2013
-Responsible for handling any customer wants and needs, perform cashier duties as well as serving. Opening and closing duties, cleaning and daily maintance. Managing wait staff, scheduling and task direction. 
+Summary/Cover letter
+--------------------
+
+I've been delivering fast great service with a smile for X months in my career
+now and am looking for a fresh respectful 
+
+
+Experience
+----------
+
+// a little vertical alignment allows you to read faster because of the patterns in the text.
+* Waitress, Hay Market | 9+ months, December 2013 – Present   | San Jose, CA
+* Bartender, Bo James  | 17 months, June 2011 – November 2012 | Iowa City, IA
+   -Was also responsible for handling any customer wants and needs, perform cashier duties as well as serving. Opening and closing duties, cleaning and daily maintance. Managing wait staff, scheduling and task direction. 
+
 Fareway	 | Commerce Drive Iowa City, Iowa 52245 	
 Cashier April 2010 – November 2011
 Friendly cashier exchanges and attending to any customer questions or trouble locating items. Stocking and inventory organization. Opening and closing duties, daily cleaning and maintance. 
+
 Panera Bread	 | Sycamore Street Iowa City, Iowa 52245	 	
 Cashier February 2009 –  March 2010
 Energetic customer service professional with six years client experience, responsible and reliable cashier in retail and customer service.
-Solid team player with dependable, positive attitude.
-Motivated by hands on, work that produces an effective positive outcome to better both the clients’ interaction with the face of a business along with accomplishing a productive transaction.
-Well-developed personal skills, effective and courteous communicator
-Resourceful, proactive and have initiative
-Flexible and adapt quickly to new working environments
-Able to work individually or guide a group of coworkers
-Creative in conflict resolution
-Tenacious work attitude,
-Quick learner and hardworking
-Well organized, able to prioritize tasks and finish accordingly
+
+Great mid-western work ethic
+----------------------------
+ • Solid team player with dependable, positive attitude.
+ • Motivated by hands on, work that produces an effective positive outcome to better both the clients’ interaction with the face of a business along with accomplishing a productive transaction.
+ • Well-developed personal skills, effective and courteous communicator
+ • Resourceful, proactive and have initiative
+ • Flexible and adapt quickly to new working environments
+ • Able to work individually or guide a group of coworkers
+ • Creative in conflict resolution
+ • Tenacious work attitude,
+ • Quick learner and hardworking
+ • Well organized, able to prioritize tasks and finish accordingly
 
 
+
+Education
+---------
+* San Jose City College
+   - Summer 2013? - Present
+   - General eds
+
+* Iowa City High School
+   - Graduated with Class in 2011
+   - Focus: Spanish, Tu habla espanol? Si!
 
 
 Markdown Resumé
