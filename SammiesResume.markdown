@@ -29,8 +29,9 @@ Panera Bread	 | Sycamore Street Iowa City, Iowa 52245
 Cashier February 2009 –  March 2010
 Energetic customer service professional with six years client experience, responsible and reliable cashier in retail and customer service.
 
-Excellent mid-western work ethic
---------------------------------
+Excellent, dependable mid-western work ethic
+--------------------------------------------
+
  * Solid team player with dependable, positive attitude.
  * Motivated by hands on, work that produces an effective positive outcome to better both the clients’ interaction with the face of a business along with accomplishing a productive transaction.
  * Well-developed personal skills, effective and courteous communicator
