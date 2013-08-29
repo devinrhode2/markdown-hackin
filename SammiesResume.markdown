@@ -38,7 +38,9 @@ Experience
     - Recieved and followed through with customer orders to meet and if possible exceed their expectations
     - Demonstrated knowledge on product appeal by placement 
     - Mastered barista skills 
-    - Responsible for cash drawer 
+    - Responsible for cash drawer
+
+
 Excellent, dependable, mid-western work ethic
 --------------------------------------------
 
