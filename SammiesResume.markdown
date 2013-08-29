@@ -13,22 +13,32 @@ now and am looking for a fresh respectful.
 Experience
 ----------
 * Waitress, Hay Market | 9+ months, December 2013 – Present   | San Jose, CA
+    - Exposed to upscale clientele
+    - Gained knowledge on local produce and various preparation methods 
+    - Gained ability to 
 * Bartender, Bo James  | 17 months, June 2011 – November 2012 | Iowa City, IA
   
   Beyond standard bartending, I was also responsible for:
     - Managing wait staff, scheduling and task direction
     - Handling customer complaints and special requests in a friendly professional manner
-    - Opening and closing
-    - Cleaning and daily maintance
+    - Solely responsible for opening and closing  
+    - Independently chose cleaning tasks to keep busy during lulls in business 
+    - Ledgered daily revenue and journal entrys for each shift 
+    - Door security 
+    - Bar backing 
+  During a month long gap in business I took the initiative to revamp the appearance, ultimately bringing a whole new level of cleanliness to the bar. 
 
-Fareway	 | Commerce Drive Iowa City, Iowa 52245 	
-Cashier April 2010 – November 2011
-Friendly cashier exchanges and attending to any customer questions or trouble locating items. Stocking and inventory organization. Opening and closing duties, daily cleaning and maintance. 
+* Cashier, Fareway | 17 months, April 2010 – November 2011 | Iowa City, IA
+    - Attending to any customer questions or trouble locating items 
+    - Stocking and inventory organization
+    - Opening and closing duties 
+    - Daily cleaning and maintance 
 
-Panera Bread	 | Sycamore Street Iowa City, Iowa 52245	 	
-Cashier February 2009 –  March 2010
-Energetic customer service professional with six years client experience, responsible and reliable cashier in retail and customer service.
-
+* Panera Bread | 13 months, February 2009 –  March 2010 | Iowa City, IA 
+    - Recieved and followed through with customer orders to meet and if possible exceed their expectations
+    - Demonstrated knowledge on product appeal by placement 
+    - Mastered barista skills 
+    - Responsible for cash drawer 
 Excellent, dependable, mid-western work ethic
 --------------------------------------------
 
@@ -39,7 +49,6 @@ Excellent, dependable, mid-western work ethic
  * Flexible and adapt quickly to new working environments
  * Able to work individually or guide a group of coworkers
  * Creative in conflict resolution
- * Tenacious work attitude,
  * Quick learner and hardworking
  * Well organized, able to prioritize tasks and finish accordingly
 
