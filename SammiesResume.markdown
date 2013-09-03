@@ -1,11 +1,3 @@
-Hey let's just use Google Docs instead.
-Only reason I wanted to use this is so that you could go
-see what I changed when I do edits,
-but in Google Docs, you can see edits under File -> See Revision History
-
-I haven't transferred stuff but the link to the Google doc is here:
-https://docs.google.com/document/d/1bcszI81thRHAR_fshKgTbuUA-hI-w2KL83gYiCJHNDY/edit?usp=sharing
-
 Samantha Sammet
 ===============
 
