@@ -7,7 +7,7 @@ Google Docs allows you to see what people have changed just by going to File > S
 I haven't transferred our new stuff here to your resume in Google Docs yet, the Google Doc is here:
 https://docs.google.com/document/d/1bcszI81thRHAR_fshKgTbuUA-hI-w2KL83gYiCJHNDY/edit?usp=sharing
 
-I was going to copy stuff over for you, but quickly realized it's a
+I was going to copy stuff over for you to Google Docs, but quickly realized it's a
 great opportunity to review and spiff it up as you copy it over!
 
 Have fun! Text me if you have questions, want an opinion, proof-reading or review.
