@@ -1,3 +1,16 @@
+Workflow update: Sorry for the github distraction, as a programmer, it is my go to tool for making
+sure you can see exactly what I change - it's important you see what I change b/c it's your resume not mine.
+
+Google Docs allows you to see what people have changed just by going to File > See Revision History. Much simpler.
+
+I haven't transferred our new stuff here to your resume in Google Docs yet, the Google Doc is here:
+https://docs.google.com/document/d/1bcszI81thRHAR_fshKgTbuUA-hI-w2KL83gYiCJHNDY/edit?usp=sharing
+
+I was going to copy stuff over for you, but quickly realized it's a
+great opportunity to review and spiff it up as you copy it over!
+
+Have fun!
+
 Samantha Sammet
 ===============
 
