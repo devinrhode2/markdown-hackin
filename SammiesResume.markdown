@@ -1,4 +1,5 @@
-Workflow update: Sorry for the github distraction, as a programmer, it is my go to tool for making
+### Workflow update:
+Sorry for the github distraction, as a programmer, it is my go to tool for making
 sure you can see exactly what I change - it's important you see what I change b/c it's your resume not mine.
 
 Google Docs allows you to see what people have changed just by going to File > See Revision History. Much simpler.
@@ -9,7 +10,7 @@ https://docs.google.com/document/d/1bcszI81thRHAR_fshKgTbuUA-hI-w2KL83gYiCJHNDY/
 I was going to copy stuff over for you, but quickly realized it's a
 great opportunity to review and spiff it up as you copy it over!
 
-Have fun!
+Have fun! Text me if you have questions, want an opinion, proof-reading or review.
 
 Samantha Sammet
 ===============
